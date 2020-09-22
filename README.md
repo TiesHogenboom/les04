@@ -1,9 +1,8 @@
-## les 4
+# Ties Hogenboom
 
-# markdown en github leren
+## 16 jaar oud.
 
-### drie hekjes
+## Fan van gamen
 
-#### vier hekjes
+## Sportief
 
-##### vijf hekjes
