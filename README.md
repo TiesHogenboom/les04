@@ -7,5 +7,5 @@
 ### *Speel veel minceraft*
 
 ## **Sportief**
-### *Ik doe aan Taekwondo
+### *Ik doe aan Taekwondo*
 
